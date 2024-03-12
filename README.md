@@ -1,1 +1,1 @@
-link chạy: https://phamvulinh18.github.io/crush3/
+link chạy: https://phamthanhtung.github.io/crush3/
